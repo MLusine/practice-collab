@@ -1,0 +1,1 @@
+Lusine Mnatsakanyan -> Frontend Developer
